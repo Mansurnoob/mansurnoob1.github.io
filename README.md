@@ -1,2 +1,14 @@
-# mansurnoob1.github.io
-adaggn erdjgbr erunb
+# WDgroup
+smart group
+odam digan inson bormi
+nmaga maniki uzgartirib tawidiz
+
+
+
+
+
+
+
+
+
+
